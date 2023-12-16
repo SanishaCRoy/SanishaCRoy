@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **sanishacroy11@gmail.com**
 
-- ⚡ Fun fact **I think i am funny**
+- ⚡ Fun fact **I Love coffee because it can boost the coding section**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
